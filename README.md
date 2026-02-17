@@ -1,0 +1,1 @@
+# StrukturData_StevenBernadus_2025071033
